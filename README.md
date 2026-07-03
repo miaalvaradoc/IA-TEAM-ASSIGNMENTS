@@ -4,4 +4,4 @@ Our team is made up of:
 Mia Alvarado Cruz - 2114905
 Maria Fernanda Soriano Lara - 2177962
 Alani Monserrath Molina Rosas - 2114717
-Ana Lucia Vasquez Andrade - 2177962 
+Ana Lucia Vasquez Andrade - 2095379
